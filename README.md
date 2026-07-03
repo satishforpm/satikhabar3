@@ -1,1 +1,0 @@
-# satikhabar3
